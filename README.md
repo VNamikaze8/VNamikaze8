@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VNamikaze8
-- 👀 I’m interested in GAming
+- 👀 I’m interested in Gaming
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me...Ask your ancestors
