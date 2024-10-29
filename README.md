@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @VNamikaze8
+- 👀 I’m interested in GAming
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me...Ask your ancestors
+- 😄 Pronouns: ...
+- ⚡ Fun fact: You Lack Skill
+- 
