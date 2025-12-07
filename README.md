@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me...Ask your ancestors
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/HIm
 - ⚡ Fun fact: You Lack Skill
 - 
